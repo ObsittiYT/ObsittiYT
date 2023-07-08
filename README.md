@@ -1,0 +1,5 @@
+- 👋 Hi, I’m: @ObsittiYT
+- 👀 I’m interested in: Femboys, Gaming, Coding, Greece, Greek Gods
+- 🌱 I’m currently learning: Greek, and some LUA, JavaScript, and HTML
+- 💞️ I’m looking to find: another coder/gamer that can help me learn to code, or do some gaming!
+- 📫 How to reach me: My Discord    Obsitti#0275
